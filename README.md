@@ -1,4 +1,4 @@
-# Horror-3D-Game
+# Unblocked Horror 3D Game
 Instructions are in the game itself. Try it now 👿
 Copy the entire link below and paste it in your search bar. It is unblocked, if that's what you're wondering.
 This is a data:image URL so it will never be blocked. 😈
